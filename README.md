@@ -1,0 +1,2 @@
+# coldycybrsss.com
+Subdomain takeover
